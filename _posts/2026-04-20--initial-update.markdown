@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Initial update"
-date:   2026-04-20 13:56:25 -0400
+date:   2026-05-01 13:56:25 -0400
 categories: update
 ---
 James was in the hospital for a week in April due to cancerous lesions in his spine. He was there for pain management and a diagnosis of the cancer.
