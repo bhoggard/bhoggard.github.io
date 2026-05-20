@@ -17,4 +17,5 @@ Schedule
 * 6:25 Taken for CT scan, returned at 7
 * 8:00 CT scan results: no brain bleed or metasteses. A lesion in the C7 vertebra is causing a lot of problems, probably the pain in the right arm and weakness. The attending doctor tells us that she put in an order for admission. Pain management is the priority.
 * 10:00 Told by nurse that even though less than 15 people in ER were waiting to be admitted, it's likely that we will have to wait until morning because people aren't normally discharged overnight.
-* 11:30 Talked James into lying in a bed propped up instead of remaining in a wheelchair. He has been very groggy and a little disoriented for hours.
+* 10:30 Talked James into lying in a bed propped up instead of remaining in a wheelchair. He has been very groggy and a little disoriented for hours.
+* 10:40 A friend arrives to relieve me for a few hours so I can take a nap and eat some dinner.
