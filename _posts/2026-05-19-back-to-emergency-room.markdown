@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Back to emergency room"
-date:   2026-05-18 15:26:25 -0400
+date:   2026-05-19 15:26:25 -0400
 categories: update
 ---
 James woke up yelling from pain in his right elbow and upper arm during the last two nights. They were slightly ameliorated by heat and ice, but it took a while for him to be able to go back to sleep.
