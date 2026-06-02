@@ -5,7 +5,7 @@ date:   2026-06-01 12:26:25 -0400
 categories: update
 ---
 
-Frankly, I'm exhausted. It has been a week since we started 24-hour care, but we don't have regulars every night for the overnight. Right now we have 1 person for Saturday night, one person for Monday through Wednesday, and different people for the other nights. The goal is to find people we're happy with and limit aides to 3 different ones at night and 3 different ones in the day. We had one hot man who was interested in our Paul Sepuya book, so we hope he comes back. We have had a few people that we had to veto because they didn't show enough patience with James. He is often confused due to the pain medications.
+Frankly, I'm exhausted. It has been a week since we started 24-hour care, but we don't have regulars for all of the shifts. Right now we have 1 person for Saturday night, one person for Monday through Wednesday nights, and different people for the other nights. We don't have consistent aides during the day at all. The goal is to find people we're happy with and limit aides to 3 different ones at night and 3 different ones in the day. Having new people so often means that I have to stick around to answer questions and help them with their tasks. We had one hot man who was interested in our [Paul Sepuya book](https://primaryinformation.org/product/shoot/), so we hope he comes back. We have had a few people that we had to veto because they didn't show enough patience with James. He is often confused due to the pain medications.
 
 He is nervous about going to bed and feeling comfortable, so it can take 30+ minutes to talk him into bed and get him to relax enough to fall asleep.
 
