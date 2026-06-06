@@ -21,3 +21,4 @@ James hasn't had a back rest since we installed the higher toilet seat. Yesterda
 
 ![Toilet back with drawing of James](/assets/images/toilet-back.jpeg){: width="800" }
 
+His niece the doctor is visiting tomorrow afternoon. My 60th birthday is Monday, so I'm going out for lunch with a few friends while she's here in the apartment with James.
